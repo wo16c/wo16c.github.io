@@ -9,3 +9,11 @@ Einige Zeit später erwacht er im Metro-General Hospital. Christine offenbart ih
 Auf der Suche nach einer Heilung gibt Strange mehr und mehr von seinem Vermögen aus und erfährt von einem Patienten namens Jonathan Pangborn, welcher an einer Querschnittlähmung litt und inzwischen wieder laufen könne. Strange sucht Pangborn auf, welcher ihm von einem geheimnisvollen Ort namens Kamar-Taj berichtet. Dort habe Pangborn wieder gelernt laufen zu können.
 Mit seinem letzten Geld kauft sich Stephen eine Karte nach Kathmandu und wird dort von dem Magier Mordo zu der Ältesten gebracht. Die Älteste lehnt Strange zunächst als neuen Schüler ab, da sich dieser respektlos verhält. Mordo kann die Älteste jedoch davon überzeugen, dass Mann Stranges Talent durchaus gebrauchen könnte und daher nimmt sie ihn wieder auf. 
 Mit Hilfe eines fotografischen Gedächtnisses lernt Strange schnell die magischen Künste und beginnt bald die Lehren der Obersten Zauberin zu hinterfragen.
+
+## Character
+
+* wissbegierig
+* egozentrisch
+* besserwisserisch
+* loyal
+* trockener Humor
