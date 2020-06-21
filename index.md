@@ -17,3 +17,7 @@ Mit Hilfe eines fotografischen Gedächtnisses lernt Strange schnell die magische
 * besserwisserisch
 * loyal
 * trockener Humor
+
+Zitat des Dr. Strange:
+> Der Tod gibt dem Leben Bedeutung.
+> Zu wissen, dass deine Tage begrenzt sind, dass deine Zeit kurz ist
