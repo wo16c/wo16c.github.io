@@ -21,3 +21,5 @@ Mit Hilfe eines fotografischen Gedächtnisses lernt Strange schnell die magische
 Zitat des Dr. Strange:
 > Der Tod gibt dem Leben Bedeutung.
 > Zu wissen, dass deine Tage begrenzt sind, dass deine Zeit kurz ist
+
+<img src="https://www.nicepng.com/maxp/u2q8o0i1w7q8q8o0/"/>
